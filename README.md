@@ -1,0 +1,1 @@
+So maani spealing misteakz
